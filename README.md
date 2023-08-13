@@ -2,7 +2,5 @@
 - 👀 I’m interested in ...
 Lw
 L
-ssss
-YEScccc
-LMAO
+
 NO
