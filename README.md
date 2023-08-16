@@ -2,4 +2,4 @@
 - 👀 I’m interested in ...
 ffff
 
-NO
+N
